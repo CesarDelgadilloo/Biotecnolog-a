@@ -1,2 +1,2 @@
-# Biotecnolog-a
+# Biotecnología
 Pagina creada de carácter estudiantil
